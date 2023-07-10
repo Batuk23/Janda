@@ -1,0 +1,2 @@
+# Janda
+Terserah
